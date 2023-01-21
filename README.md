@@ -1,6 +1,6 @@
 # SNLL
 
-- READ IT WITH BETTER QUALITY AND EASE IN THE OFFICIAL PDF:
+- 𝐑𝐄𝐀𝐃 𝐈𝐓 𝐖𝐈𝐓𝐇 𝐁𝐄𝐓𝐓𝐄𝐑 𝐐𝐔𝐀𝐋𝐈𝐓𝐘 𝐀𝐍𝐃 𝐄𝐀𝐒𝐄 𝐈𝐍 𝐓𝐇𝐄 𝐎𝐅𝐅𝐈𝐂𝐈𝐀𝐋 𝐏𝐃𝐅:
 https://shre.ink/snll
 
 SNLL License by SwankyNoob
