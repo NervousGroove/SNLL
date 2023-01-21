@@ -1,4 +1,8 @@
 # SNLL
+
+- READ IT WITH BETTER QUALITY AND EASE IN THE OFFICIAL PDF:
+https://shre.ink/snll
+
 SNLL License by SwankyNoob
 
 Restrictive Licensing
